@@ -1,2 +1,5 @@
 # WESPOCALYPSE
-oh jesus
+Internet Persona
+Meghan Aguirre
+Maddie Brimble
+Raavi Dhillon
